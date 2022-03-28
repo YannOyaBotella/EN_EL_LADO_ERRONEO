@@ -1,4 +1,4 @@
-# EN EL LADO ERRONEO
+# EN EL LADO ERRÓNEO
 "En el lado erróneo", una historia original de Alejandro Sola, Yann Oya y Noelia Sarabia.
 
 Proyecto Storytelling (template): Nombre del Equipo: Equipo 9
